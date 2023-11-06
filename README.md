@@ -1,6 +1,4 @@
-Bem vindos!❤️
-*me chamo Ana Flávia Machado cruz*
-_sou aluna do 1° ano A do colegio estadual professor custodio netto_
-
-
-
+Bem vindos!💙
+*me chamo ana flávia machado cruz*
+_sou aluno do 1°ano a do colégio estadual professor custodio netto_
+ me
